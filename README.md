@@ -1,4 +1,4 @@
-[Woah Your At the Home for BaseBall Arenas' Website!
+Woah Your At the Home for BaseBall Arenas' Website!
 
 _____
 
